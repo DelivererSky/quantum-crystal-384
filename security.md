@@ -52,4 +52,4 @@ El botón verde en la sección Inicio rápido.
 
 <p align="center"><a href="https://share.google/kMjQXg1X8LKc8OlaD"><b>⬇ Download Davinci Resolve Studio Crack — free (2026)</b></a></p>
 
-<p align="center"><sub>Compartido bajo licencia MIT · Actualizado 2026-10-09</sub></p>
+<p align="center"><sub>Compartido bajo licencia MIT · Actualizado 2026-10-10</sub></p>
